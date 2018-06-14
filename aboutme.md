@@ -8,10 +8,11 @@ My name is Vibhu Yadav. I have the following qualities:
 
 - I rock a great sense of humor
 - I'm extremely loyal
-- I could at times bore you to death. At that point you would wish you had not seen the above two points
+- I would take you to exciting places
+- I could at times bore you to death. At that point you would wish you had not seen the above the points
 
 What else do you need?
 
-### my history
+### My History
 
-To be honest, it is would'nt be any different then yours unless you are some crackhead.
+To be honest, it is would'nt be any different than yours. All of us go through similar stuff yet we think we are different. Let's leave this open for discussion at the table.
